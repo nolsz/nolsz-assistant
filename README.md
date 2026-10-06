@@ -1,4 +1,4 @@
-# BODY — your space
+# BODY — Nick's Space
 
 **A graph. The readings behind it. Your progress photos.**
 
